@@ -1,4 +1,4 @@
-## Wudson Batista || Web Developer
+## Wudson Batista | Web Developer
 
 
 
